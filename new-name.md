@@ -1,0 +1,40 @@
+# Possible Names
+- Notch
+- Octave
+- dacap
+- bearherd
+- billyo
+- necen
+- Interrobang
+
+# Didn't make the pass
+- -birdrib-
+- -uecen-
+- -neillo-
+- -biwiq-
+- -picid-
+- -nocou-
+- -macron-
+- -wist-
+- -conoc-
+- -solidus-
+- -Left Square-
+- -Cotter Pin (or cotter-pin)-
+- -Pilcrow-
+- -Pyrolsis-
+- -Razee-
+- -Enormoty-
+- -Bilabila-
+- -Candrabindu-
+- -Versicle-
+- -Open Notch-
+- -Cubit-
+- -Nidus-
+- -In Silico-
+- -Commix-
+- -Skeigh-
+- -Cotter-
+- -Cotterpin-
+- -Transom-
+- -emend-
+- -epoxy-
